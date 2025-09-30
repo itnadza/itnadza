@@ -1,5 +1,5 @@
-- 👋 Hi, I’m Nadža and I am a first year student at International Burch University
-- 🌱 I’m currently learning Web development,Databases and programming languages (Python, C++...)
+- 👋 Hi, I’m Nadža and I am a second year student at International Burch University
+- 🌱 I’m currently learning Web,Data Structures and Algorithms and IT business
 - I’m looking to collaborate on IT projects :)
 - 📫 How to reach me:
 
