@@ -10,6 +10,6 @@
   
 - I also work on paintings and murals so I am open to any creative projects and work!
 
-  Reach out to me on my art profile if interesed for collaborations or orders: 
+  Reach out to me on my art profile if interested for collaborations or orders: 
   @nadzaart
 
